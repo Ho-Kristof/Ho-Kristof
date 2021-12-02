@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ho-Kristof
+- 👀 I’m interested in coding , gaming
+- 🌱 I’m currently learning to code
